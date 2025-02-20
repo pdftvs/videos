@@ -1,0 +1,2 @@
+What Is the 'George Cooper Leak' and Why Is Montana Jordan's Viral Video Causing a Stir? Montana Jordan, the actor known for portraying George Cooper Jr. on Young Sheldon, has become the Salman Khan's FIRST look from Hollywood debut gets leaked online ahead of Sikandar release, video goes Salman Khan's First Look From Hollywood Thriller LEAKED Ahead Of Sikandar Release | Watch Viral Video Salman Khan is shooting a cameo for a Hollywood thriller at AlUla Studios in Saudi Arabia. Filming began on February 17 and will finish by
+
