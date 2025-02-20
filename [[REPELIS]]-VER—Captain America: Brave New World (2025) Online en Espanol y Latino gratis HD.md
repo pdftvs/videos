@@ -1,3 +1,8 @@
+📺📱👉◄◄🔴 https://tinyurl.com/3xfnrmhd
+
+📺📱👉◄◄🔴 https://tinyurl.com/3xfnrmhd
+
+
 CAPITÁN AMÉRICA: BRAVE NEW WORLD. LA PELÍCULA SUPERA LOS 2,5 MILLONES DE EUROS DE RECAUDACIÓN EN ESPAÑA EN SU PRIMER FIN DE SEMANA. YA EN CINES.
 Madrid, 17 de febrero de 2025 - Más de 320 mil espectadores han ido este fin de semana a ver Capitán América: Brave New World en nuestro país. La película supera los 2,5 millones de euros, lo que la convierte en la mayor apertura en lo que va de año. Globalmente el nuevo título de Marvel Studios alcanza los 192 millones de dólares.
 
