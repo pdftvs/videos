@@ -1,3 +1,8 @@
+📺📱👉◄◄🔴 https://tinyurl.com/582tjeyv
+
+📺📱👉◄◄🔴 https://tinyurl.com/582tjeyv
+
+
 Galatasaray, 17:45 UTC'de at Rams Park Stadyumu stadyumu, Istanbul şehir, Türkiye itibarıyla 20 Şub 2025 tarihinde başlayarak AZ Alkmaar ile başa baş gidiyor. Maç, UEFA Avrupa Ligi, Knockout Phase yarışmasının bir parçasıdır.
 Galatasaray, bu sezon 2 maçlarında AZ Alkmaar ile oynadı.
 Sofascore Canlı Skor Galatasaray ve AZ Alkmaar arasındaki önceki maçların, H2H maçlarına göre sıralamasını bulabilirsiniz. Sofascore ayrıca çeşitli spor özellikleri ile bu maçın canlı skorunu takip etmenin en iyi yolunu sağlar. Bu nedenle şunları yapabilirsiniz:
